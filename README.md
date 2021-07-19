@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @opernov
-- 👀 I’m interested in programming and politics
+- 👀 I’m interested in programming 
 - 🌱 I’m currently learning English
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 my gmail - reaktionbro@gmail.com
 
